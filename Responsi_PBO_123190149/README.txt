@@ -1,0 +1,7 @@
+RESPONSI PRAKTIKUM PBO
+M RIFQI SETYADI
+123190149
+PLUG D
+
+LINK VIDIO PRESENTASI :
+https://drive.google.com/file/d/1sWgqNtzvqOM2KvCN40X8LZpG7yBAiRBu/view?usp=sharing
